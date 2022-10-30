@@ -57,7 +57,7 @@ E-mail: Igor.Almeidadasilva13@gmail.com
 
 Linkedin: https://www.linkedin.com/in/igor-almeida-da-silva-97b724247/
 
-Github:https://github.com/igoralmeidadasilva
+Github: https://github.com/igoralmeidadasilva
 
 
 
